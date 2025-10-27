@@ -15,8 +15,8 @@ Je suis passionné par le développement et l'apprentissage continu. 🚀
 - Me perfectionner en hacking éthique
 
 ### 📫 Comment me contacter
-- Email : ton-email@example.com  
-- LinkedIn : [Ton profil LinkedIn](https://www.linkedin.com/in/tonprofil)
+- Email : hichammah2000@gmail.com 
+- LinkedIn : 
 
 ### 😄 Pronoms
 - Il / Lui
