@@ -16,7 +16,7 @@ Je suis passionné par le développement et l'apprentissage continu. 🚀
 
 ### 📫 Comment me contacter
 - Email : hichammah2000@gmail.com 
-- LinkedIn :  linkedin.com/in/hicham-benchafiq-50a746395
+- LinkedIn :  linkedin.com/hicham-benchafiq-50a746395
 
 ### 😄 Pronoms
 - Il / Lui
